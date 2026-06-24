@@ -14,3 +14,4 @@ The people using it now, building history now, staying active now  they’ll pro
 Most people will catch on later.
 
 That’s usually how it goes.
+Base is clearly evolving beyond a typical L2 The ecosystem growth and usage numbers show strong momentum
